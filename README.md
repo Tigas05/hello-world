@@ -2,4 +2,4 @@
 
 Hi World!!
 
-No have nothing here but you keep  learning becouse you belive have some.
+No have nothing here but you keep reading becouse you belive have some.
